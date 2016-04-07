@@ -1,0 +1,1 @@
+BAZY DANYCH
